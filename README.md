@@ -90,3 +90,10 @@ And when they finally do, their tails come together to form a heart, because eve
 I hope you always remember that, wherever life takes us, being with you will always be my favorite place to be.
 
 **With you, any place is my favorite. ♡**
+
+---
+
+<sub>Part of a collection of little projects created with love.</sub>
+
+🐈🌙
+
